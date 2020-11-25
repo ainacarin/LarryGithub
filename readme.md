@@ -3,5 +3,5 @@
 
 Esta serie de libros cuentan la historia de un hacker de los que hay pocos.
 
-**Aida N**
+**Aida N**, Larry Plotter Lover
 
